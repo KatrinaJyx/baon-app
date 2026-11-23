@@ -1,1 +1,2 @@
-# baon-app
+# KATRINA JOYCE IGNACIO
+# BSIS 3-B
